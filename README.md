@@ -28,10 +28,10 @@
 
 <br>
 
-[![N|Solid](images/telegram.svg)](https://t.me/vinayak_09)
+[![N|Solid](images/telegram.svg)](https://t.me/ROCKY)
 
 
-[![N|Solid](images/instagram.svg)](https://instagram.com/vinayak_patil_09)
+[![N|Solid](images/instagram.svg)](https://instagram.com/_._prasuna_._)
 
 
 <br>
